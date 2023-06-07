@@ -1,1 +1,1 @@
-# B-N-C-Hi88
+BẮN CÁ Hi88 - Kho vũ khí của trò chơi bắn cá Hi88 cũng vô cùng đa dạng. Có các loại súng như súng đạn 2, súng đạn 4, súng đạn 8, súng đạn 16 với các chức năng khác nhau. Người chơi khi tham gia lựa chọn các loại súng phù hợp để tiêu diệt những chú cá khủng hay những đàn cá lớn và nhận về những giải thưởng hấp dẫn sau khi tiêu diệt. - https://hi88c.us/ban-ca/
